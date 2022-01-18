@@ -1,4 +1,8 @@
 ---
 published: true
 ---
-The Weeknd's Album dropped! How was it?
+The Weeknd's Album dropped! Well, it's been almost 2 weeks since the album dropped, but the ablum is new enough that there is still a lot of buzz surrounding it. I haven't developed an exact "quality measurement" system for how good or bad an album is, but as a general summary, I liked The Weeknd's new album.
+
+Some notable things about the album is the "retro" feel of the entire album. I don't have that much knowledge of 80's era music, but this album is reminicent of everything that I would consider "80's" style music. A lot of the tracks have synth beats and a similar sounding chord progression, and the Weeknd is also playing into that vibe with his vocals. Due to this similar style between songs, I think that most people would be able to just run straight through the album without skipping any songs. It almost sounds as if you are listening to one long-ass song, which is not particularly bad. I think the only complaint I would have is that there really isn't a uniqueness to many of the songs. I think each of the songs have a good groove to them, but the issue is that there really isn't a stand out song. I don't think any of these songs would be some sort of earworm; the songs that I could possibly point to for this would maybe be "Sacrifice" and "Take my Breath", mostly because they are the songs that sound closest to The Weeknd's previous popular discography. More accurately, they sound similar to a lot of the popular songs on his previous album (and I'm only familiar with a few of those anyway). 
+
+In conclusion, I think that the album in general is a good listen, but there isn't something entirely exciting about it. It's just nice music to have in the background.
